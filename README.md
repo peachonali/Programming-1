@@ -1,1 +1,0 @@
-โปรเจครายวิชา PROGRAMING language
